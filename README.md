@@ -1,0 +1,2 @@
+# time
+life is beautiful
